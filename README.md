@@ -1,0 +1,2 @@
+# omara
+naloge omara
